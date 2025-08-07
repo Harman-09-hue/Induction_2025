@@ -1,6 +1,6 @@
 # Induction_2025
 ### GNDEC Ludhiana — Induction Program Report
-
+# Harmandeep singh 
 # Day 1 (30 July 2025)   
 
 ---
